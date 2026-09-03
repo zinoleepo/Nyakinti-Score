@@ -1,0 +1,2 @@
+# Nyakinti-Score
+L
